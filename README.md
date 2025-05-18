@@ -67,5 +67,8 @@ The system became the core of the company’s digital transformation initiative.
 
 Feel free to reach out if you'd like to know more about this project.
 
-- 📧 Email: redakassoumeh1@gmail.com  
-- 📱 WhatsApp: +963 992 962 532
+📱 [+963 992 962 532](https://wa.me/963992962532)
+📧 [redakassoumeh1@gmail.com](mailto:redakassoumeh1@gmail.com)
+🌍 [Portfolio](https://redakassoumeh.vercel.app)
+💼 [LinkedIn](https://www.linkedin.com/in/redakassoumeh/)
+
